@@ -1,2 +1,1 @@
-# vue_test
-Super project
+Play with vue
