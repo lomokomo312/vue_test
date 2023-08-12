@@ -1,1 +1,1 @@
-happy map gradually fierce active health tax fuel most engineer foreign pack kind snow repeat
+rule green stretch swung birthday bit tight officer earn production nature health shoe be pitch
