@@ -1,1 +1,1 @@
-worker is pick almost today porch society go rich its action energy edge manner negative
+managed exclaimed school stretch sentence softly tape watch clothes shout old tape column his somebody
