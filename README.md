@@ -1,1 +1,1 @@
-ahead outside repeat observe space sides next nation back apart occur last eager talk copy
+new load diagram learn long future morning me opinion period point information sing reach symbol
