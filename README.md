@@ -1,1 +1,1 @@
-hand hour lonely trouble pain why sing favorite author whatever hand aid environment exactly wish
+stopped path tower blow feet girl closer grandfather strong strike worth pack gasoline shirt feathers
