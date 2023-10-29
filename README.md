@@ -1,1 +1,1 @@
-palace held pond anything arrive upward hearing ability muscle huge nothing wire split kind distant
+shore in variety ate ability half above underline nearest did indicate were hole shoulder speak
