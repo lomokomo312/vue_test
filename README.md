@@ -1,1 +1,1 @@
-shore in variety ate ability half above underline nearest did indicate were hole shoulder speak
+structure prepare thee father bow opinion forget planet again sent cut spring available medicine baseball
