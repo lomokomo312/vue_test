@@ -1,1 +1,1 @@
-laugh in poetry balance solid burn stood sang river eager smooth rising settlers decide prevent
+energy curve possible trip price regular plenty valuable needs wrote safe free airplane wooden closer
