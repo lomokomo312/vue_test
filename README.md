@@ -1,1 +1,1 @@
-receive north my firm news range ancient gulf manufacturing nor scene break anyone place national
+lucky nodded law later equipment paper weak reader afternoon political thou larger none floating dear
