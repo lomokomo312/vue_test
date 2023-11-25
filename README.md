@@ -1,1 +1,1 @@
-lucky nodded law later equipment paper weak reader afternoon political thou larger none floating dear
+bar earlier lady cow us against slope paper danger weight determine frozen what same popular
