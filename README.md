@@ -1,1 +1,1 @@
-board desk potatoes care stay bottle built term elephant barn climb disease busy damage close
+properly disease dog parent gulf base herd high leaf owner dropped shadow ourselves garage each
