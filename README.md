@@ -1,1 +1,1 @@
-shine eleven build fur mouth waste spend grain mysterious earth week between pet noun wall
+ten depend rising three me branch fresh element spell main brick previous affect exact full
