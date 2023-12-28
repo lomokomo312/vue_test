@@ -1,1 +1,1 @@
-ten depend rising three me branch fresh element spell main brick previous affect exact full
+available card went tie lay bat unknown are food plenty tales hour cold lose organization
